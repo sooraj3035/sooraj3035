@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Sooraj Mohan
-- 👀 I’m interested in tech
 - 🌱 I’m currently working as Sr. Software developer ...
 - 📫 You can reach me at +919633218878 and soorajfreelanceracc@gmail.com
 
